@@ -1,0 +1,2 @@
+# Instituto-tecnologico-bochilchiapas.githup.io
+SOMOS UNA OPCION PARA TI VEN Y ESCRIBETE EN EL BACHILLERATO TECNOLOGICO.
